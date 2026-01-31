@@ -1,16 +1,16 @@
-## Hi there 👋
+| I'm yotuba777 |
+|-|
 
-<!--
-**y777-yotuba777/y777-yotuba777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+| want to be full-stack engineer |
+|-|
 
-Here are some ideas to get you started:
+| theres not much to write |
+|-|
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+
+| will be busy coz of the high school exam |
+|-|
+
+| am determined to get into my first-choice school and finish my entrance exams on 8th February |
+|-|
